@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @boracicekk
-- 👀 I’m interested in code and fitness!
-- 🌱 I’m currently learning JAVA and PYTHON!
-- 💞️ I’m looking to collaborate on summer internship for 2023!
+- 👀 I’m interested in programming and cyber security!
+- 🌱 I’m currently learning PHP and GO!
+- 💞️ I’m looking to collaborate on summer internship for 2024 Summer!
 - ** 📫 How to reach me ** 
 - LinkedIn: https://www.linkedin.com/in/boracicekk/
 - Instagram: https://www.instagram.com/boracicekkk/
