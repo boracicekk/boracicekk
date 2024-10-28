@@ -7,8 +7,8 @@
 - 💞️ I’m looking to collaborate on **long-term intership program**!
   
 - **📫How to reach me:**
-Instagram: https://www.instagram.com/boracicekkk/
-LinkedIn: https://www.linkedin.com/in/boracicekk/
+- Instagram: https://www.instagram.com/boracicekkk/
+- LinkedIn: https://www.linkedin.com/in/boracicekk/
   
 - **👀You can also read my blog posts on Medium!👀:**
   https://medium.com/@boracicekk
