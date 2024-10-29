@@ -4,7 +4,7 @@
   
 - 🌱 I’m currently learning **JAVA**!
   
-- 💞️ I’m looking to collaborate on **long-term intership program**!
+- 💞️ I am looking to collaborate on **long-term intership program**!
   
 - **📫How to reach me:**
 - Instagram: https://www.instagram.com/boracicekkk/
